@@ -1,0 +1,25 @@
+
+------------------------------------------------------------------------
+# Placement Journal 
+---
+
+How was the day Warrior?
+- [ ] 😋 very
+- [ ] 🙂 okay
+- [ ] 😒 gotta do more
+- [ ] 😩 hell naa
+
+
+# GOALS
+1. [ ] 10 questions Striver SDE Sheet
+2. [ ] Core topics Revise
+3. [ ] Leetcode Hards
+4. [ ] 
+
+# NOTE ✍️
+- 
+
+
+------------------------------------------------------------------------
+
+

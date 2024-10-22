@@ -1,0 +1,6 @@
+- sex role is strongly related with the ==prevailing culture==. Religion, culture and tradition have deep roots and have significant influence on the individual's personality and behavior
+- Women speak and hear a language of connection and intimacy
+- Men speak and hear a language of status and independence
+- Instead of different dialects... they speak ==different genderlects==
+- A women’s brain is pre-wired to use speech as a main form of expression and this is one of their strengths
+- Women talk less, listen more, and are interrupted more often than men in a mixed group.
